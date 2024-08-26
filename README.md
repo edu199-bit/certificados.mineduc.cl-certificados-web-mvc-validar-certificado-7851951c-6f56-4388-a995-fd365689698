@@ -1,0 +1,1 @@
+# certificados.mineduc.cl-certificados-web-mvc-validar-certificado-7851951c-6f56-4388-a995-fd365689698
